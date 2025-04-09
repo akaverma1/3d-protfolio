@@ -28,3 +28,10 @@ Visit: http://localhost:3000
 <img width="1792" alt="Screenshot 2025-04-09 at 11 21 34 AM" src="https://github.com/user-attachments/assets/61952bdc-5327-4a06-80b8-0e14f2aa8ff9" />
 <img width="1792" alt="Screenshot 2025-04-09 at 11 21 51 AM" src="https://github.com/user-attachments/assets/f2c9a303-9945-4211-a578-7ca1a510746e" />
 <img width="1792" alt="Screenshot 2025-04-09 at 11 22 01 AM" src="https://github.com/user-attachments/assets/555f5d35-6685-417c-9cbd-22f06af5b34b" />
+
+📬 Contact
+Feel free to reach out:
+
+📧 Email: [aquamaxzi888@gmail.com]
+
+📸 Instagram: the_lost_gurjar
